@@ -22,4 +22,4 @@
 
 ## 📫 Contact Me
 
-- LinkedIn: [Your LinkedIn](https://www.linkedin.com/in/divyanshus13]/)
+- LinkedIn: [Divyanshu Singh](https://www.linkedin.com/in/divyanshus13]/)
